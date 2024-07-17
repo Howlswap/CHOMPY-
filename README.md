@@ -1,1 +1,9 @@
-# CHOMPYSOL.github.io
+![400_filter_nobg_66974e42b698e](https://github.com/user-attachments/assets/fdd75084-4e63-49bc-984c-65e4bab72633)
+![normal_66975242573d0](https://github.com/user-attachments/assets/3a8f98b2-fd7b-42d4-9304-89ef81d0f109)
+![800_6697506132a74](https://github.com/user-attachments/assets/c605f90f-2918-44ca-b74c-2b05ebbf1092)
+![800_6697506135b4c](https://github.com/user-attachments/assets/61059ce9-c648-456d-876b-a22e88a7993a)
+![800_669750613069d](https://github.com/user-attachments/assets/18bce95f-7f78-4ed3-8203-2a89fbaa1de1)
+![800_669750613a55b](https://github.com/user-attachments/assets/6a808185-3815-46af-91b5-8657191c4e35)
+![800_669750612de1f](https://github.com/user-attachments/assets/1d809688-5ee9-444d-8fd4-627937eb1a6d)
+![800_6697506134055](https://github.com/user-attachments/assets/dd52e3be-06c9-47b2-9341-c020d7af9fa6)
+![800_6697506128ca7](https://github.com/user-attachments/assets/e2c00031-c66f-4700-9427-1f8915b50194)
